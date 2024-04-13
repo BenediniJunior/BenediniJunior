@@ -1,5 +1,5 @@
 - 👋 Oi, Eu sou  @BenediniJunior
-- 👀 Tenho interesse em migrar áreas e iniciar na área de TI
+- 👀 Estou migrando para área de TI
 - 🌱 Atualmente estou Cursando Engenharia de Software na Faculdade Anhaguera
 - 💞️ Procuro colaborar em aprender algo novo tudo dia e estar ligado em tudo o que acontece na area! 
 - 📫 Entre em contato comigo via email e redes sociais!
